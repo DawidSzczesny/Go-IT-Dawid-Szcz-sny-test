@@ -1,1 +1,1 @@
-# Go-IT-Dawid-Szcz-sny-test
+# Go-IT-Dawid Szczesny -test

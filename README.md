@@ -1,0 +1,1 @@
+# Go-IT-Dawid-Szcz-sny-test
